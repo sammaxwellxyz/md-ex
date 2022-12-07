@@ -5,6 +5,7 @@
 ... and that was Big Yellow Taxi by Joni Mitchell, a song in which Joni complains that they paved paradise to put up a parking lot.
 A measure which actually would have alleviated traffic congestion on the outskirts of paradise, something which Joni singularly fails to point out - perhaps because it doesn’t quite fit in with her blinkered view of the world.
 Nevertheless, nice song.
+Do you know what this bathroom says to me? Aqua.
 
 Oooh scary Irish men.
 Would you like to recruit me?
